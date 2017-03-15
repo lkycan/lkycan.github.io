@@ -1,2 +1,0 @@
-# lkycan.github.io
-lkycan
